@@ -1,3 +1,2 @@
-## Slojno ne smotret
-
-![kisuke-urahara-bleach](https://github.com/user-attachments/assets/378e5247-a97d-4285-94ba-14dd174c691f)
+# Bang.
+![bibop](https://github.com/user-attachments/assets/282263bd-808c-457a-8ce4-93ec5df296d2)
